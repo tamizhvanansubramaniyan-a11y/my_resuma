@@ -1,1 +1,1 @@
-https://via.placeholder.com/150
+file:///C:/Users/tamiz/Downloads/tamizhresume.html
